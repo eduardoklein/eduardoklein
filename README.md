@@ -4,6 +4,7 @@
 📍 Recife - PE, Brasil  
 📧 eduardo.klein@live.com  
 🔗 [LinkedIn](https://linkedin.com/in/eduardo-klein-c)
+🔗 [Portfólio](https://eduardoklein.github.io/portfolio)
 
 ---
 
